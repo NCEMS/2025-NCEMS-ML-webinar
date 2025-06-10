@@ -1,6 +1,6 @@
 ## Additional training materials
 
-[Slideshow](https://docs.google.com/presentation/d/10CyM4k4WmN7fwXV9RpUVlRxKF9eQ4jikm_3DYGW4cwA/edit?usp=sharing)
+[Slideshow](https://docs.google.com/presentation/d/1vU5jGfucWc2airj8q2WicB2aEWRIDNwbCqX1-7R47Y4/edit?usp=sharing)
 
 [Background & Theory packet](https://drive.google.com/file/d/1sOxAyo2lRvEjULoF53rvWa9uz6nlysDN/view?usp=drive_link)
 
